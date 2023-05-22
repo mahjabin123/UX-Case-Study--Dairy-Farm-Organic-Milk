@@ -1,1 +1,1 @@
-# UX-Case-Study--Dairy-Farm-Organic-Milk
+# UX-Case-Study-Dairy-Farm-Organic-Milk
